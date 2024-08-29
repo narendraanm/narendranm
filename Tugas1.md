@@ -1,1 +1,1 @@
-narendra ganteng banget ga bohong
+narendra Nur Marcapada
