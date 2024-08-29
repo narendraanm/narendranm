@@ -1,0 +1,1 @@
+narendra ganteng banget ga bohong
