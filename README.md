@@ -1,2 +1,3 @@
 # narendranm
 Nama Saya Narendra Nur Marcapada. Saya berumur 19 tahun dan lahir pada 16 Februari 2005. Saya memiliki beberapa hobi, salah satunya adalah bermain bola.  Saya adalah mahasiswa Geofisika di Universitas Gadjah Mada yang memiliki minat panas bumi dan eksplorasi sumber daya alam. Saya juga aktif dalam organisasi dalam geofisika kampus, di mana saya berpartisipasi dalam Himpuna Mahasiswa Geofisika pada diviv Kewirausahaan.  Saya bersemangat untuk mengembangkan keterampilan saya lebih lanjut melalui magang di industri geofisika dan berkontribusi pada penelitian dan eksplorasi yang berhubungan dengan Geofisika. Di luar akademik, saya menyukai kegiatan di alam bebas dan fotografi pemandangan alam.
+haloloo
