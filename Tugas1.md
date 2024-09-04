@@ -1,3 +1,1 @@
 narendra Nur Marcapada
-jungjkriknednqwubfuqwbfquhwb
-pepek
